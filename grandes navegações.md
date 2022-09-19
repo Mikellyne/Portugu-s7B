@@ -1,0 +1,3 @@
+As Grandes Navegações foram o processo de exploração do [[Oceano Atlântico ]]realizado pioneiramente por Portugal no século XV e acompanhado por outros países europeus ao longo do XVI. Levaram a uma série de “descobrimentos” por parte dos europeus e resultaram, por fim, na chegada europeia ao continente americano em 1500.
+
+Por meio das Grandes Navegações, iniciou-se a [[colonização]] da [[América]] e consolidou-se a passagem da Idade Média para a Idade Moderna.![[images (1).jpeg]]
